@@ -1,1 +1,1 @@
-I USE POP OS BTW
+I USE POP OS and macos BTW
