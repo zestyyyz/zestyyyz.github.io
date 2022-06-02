@@ -1,1 +1,1 @@
-I USE POP OS and macos BTW
+I use fedora kde and macos high sierra on the daily
