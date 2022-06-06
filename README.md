@@ -1,1 +1,1 @@
-I use fedora kde and macos high sierra on the daily
+I use archlinux kde and macos high sierra on the daily
