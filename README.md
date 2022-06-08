@@ -1,1 +1,1 @@
-I use Manjaro kde and macos high sierra on the daily
+I use windows and macos monterey on the daily
