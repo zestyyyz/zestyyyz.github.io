@@ -1,1 +1,1 @@
-I use archlinux kde and macos high sierra on the daily
+I use Manjaro kde and macos high sierra on the daily
