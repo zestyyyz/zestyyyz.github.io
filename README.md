@@ -1,1 +1,1 @@
-I use windows and macos monterey on the daily
+I USE FEDORA BTW
