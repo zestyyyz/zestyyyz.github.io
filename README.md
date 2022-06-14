@@ -1,1 +1,1 @@
-I USE windows and macos btw
+I USE windows 11 and macos high sierra btw
