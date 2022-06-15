@@ -1,1 +1,1 @@
-I USE windows 11 and macos high sierra btw
+I use kubuntu linux
