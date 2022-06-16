@@ -1,1 +1,1 @@
-I use Manjaro linux and fedora
+My site is mega chad
