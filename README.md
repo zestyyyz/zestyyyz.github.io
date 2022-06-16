@@ -1,1 +1,1 @@
-I use Manjaro linux
+I use Manjaro linux and fedora
