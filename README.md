@@ -1,1 +1,1 @@
-I use kubuntu linux
+I use Manjaro linux
