@@ -1,1 +1,1 @@
-I use fedora linux btw
+Btw I use linux mint!
