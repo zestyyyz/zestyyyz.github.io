@@ -1,1 +1,1 @@
-I use pop os btw
+I use fedora
