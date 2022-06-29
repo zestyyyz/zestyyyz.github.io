@@ -1,1 +1,1 @@
-Btw I use chromeos and macos!
+Btw I use chromeos and pop os!
