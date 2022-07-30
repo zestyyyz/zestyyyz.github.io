@@ -1,1 +1,1 @@
-Btw I use openSUSSY tumbleweed! yay
+Btw I use debian! yay
