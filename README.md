@@ -1,1 +1,1 @@
-Btw I use debian and macos! yay
+Btw I use ubuntu and macos! yay
