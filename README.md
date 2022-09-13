@@ -1,1 +1,1 @@
-Btw I use ubuntu and macos! yay
+Btw I use arch and macos! yay
