@@ -1,1 +1,1 @@
-Btw I use arch and macos! yay
+Btw I use mint! yay
