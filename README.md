@@ -1,1 +1,1 @@
-Btw I use mint! yay
+Btw I use Linux mint! yay
