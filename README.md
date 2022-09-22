@@ -1,1 +1,1 @@
-Btw I use Linux mint! yay
+Btw I use openSUSE TW! yay
