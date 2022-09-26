@@ -1,1 +1,1 @@
-Btw I use openSUSE TW! yay
+Btw I use fedora yay
