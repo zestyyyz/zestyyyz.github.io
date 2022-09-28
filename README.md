@@ -1,1 +1,1 @@
-Btw I use fedora! yay
+Btw I use arch linux!
