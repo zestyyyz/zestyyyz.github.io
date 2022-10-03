@@ -1,1 +1,1 @@
-Btw I use arch linux!
+Btw I use linux mint!
