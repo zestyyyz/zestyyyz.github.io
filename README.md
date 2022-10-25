@@ -1,1 +1,1 @@
-Btw I use linux mint!
+Btw I use windows and macos
