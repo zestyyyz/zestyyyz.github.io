@@ -1,1 +1,1 @@
-Btw I use kubuntu linux!
+Btw I use kubuntu!
