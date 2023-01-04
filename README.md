@@ -1,1 +1,1 @@
-endeavour os user
+mint
