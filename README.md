@@ -1,1 +1,1 @@
-endeavour
+manjaro
