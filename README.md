@@ -1,1 +1,1 @@
-manjaro
+minty
