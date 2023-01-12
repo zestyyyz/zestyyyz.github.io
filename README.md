@@ -1,1 +1,1 @@
-minty
+windows 11 and mac os high sierra
