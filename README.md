@@ -1,1 +1,1 @@
-windows 11 and mac os high sierra
+windows 11 and mac os 
