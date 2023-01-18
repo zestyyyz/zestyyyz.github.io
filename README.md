@@ -1,1 +1,1 @@
-linux mint on macbook pro user
+ubuntu
