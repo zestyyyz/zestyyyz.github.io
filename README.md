@@ -1,1 +1,1 @@
-full time macos chad
+linux mint on macbook pro user
