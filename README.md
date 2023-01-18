@@ -1,1 +1,1 @@
-windows 11 and mac os 
+full time macos chad
