@@ -1,1 +1,1 @@
-pop os enjoyer
+macos enjoyer
