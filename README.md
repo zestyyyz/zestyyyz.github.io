@@ -1,1 +1,1 @@
-ubuntu on macbook pro user
+pop os enjoyer
