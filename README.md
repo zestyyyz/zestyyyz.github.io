@@ -1,1 +1,1 @@
-macos and windows enjoyer
+vanilla os enjoyer
