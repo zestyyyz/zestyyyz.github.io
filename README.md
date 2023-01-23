@@ -1,2 +1,1 @@
-Macos Enjoyer 4 life
-
+Pop os enjoyer
