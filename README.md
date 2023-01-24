@@ -1,1 +1,1 @@
-Pop os lover
+Linux Mint on Mac enjoyer
