@@ -1,1 +1,1 @@
-Linux Mint on Macbook Pro enjoyer
+Macos enjoyer
