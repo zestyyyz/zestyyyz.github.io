@@ -1,1 +1,1 @@
-Manjaro enjoyer
+Linux Mint on mac user
