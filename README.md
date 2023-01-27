@@ -1,1 +1,1 @@
-Linux Mint on mac user
+Linux Mint on macbook pro user
