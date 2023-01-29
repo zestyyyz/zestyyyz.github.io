@@ -1,1 +1,1 @@
-Linux Mint on macbook pro user
+ventura enjoyer
