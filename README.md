@@ -1,1 +1,1 @@
-ventura and monterey enjoyer
+macos mojave enjoyer
