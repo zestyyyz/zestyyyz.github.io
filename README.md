@@ -1,1 +1,1 @@
-macos mojave enjoyer
+Zorin OS enjoyer
