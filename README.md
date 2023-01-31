@@ -1,1 +1,1 @@
-Zorin OS enjoyer
+Zorin OS on mac enjoyer
