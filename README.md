@@ -1,1 +1,1 @@
-Zorin OS on mac enjoyer
+I use arch btw
