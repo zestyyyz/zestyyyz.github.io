@@ -1,1 +1,1 @@
-I use fake arch btw
+I use Manjaro btw
