@@ -1,1 +1,1 @@
-I use arch on macbook pro btw
+Mac User
