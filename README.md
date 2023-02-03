@@ -1,1 +1,1 @@
-I use Manjaro btw
+I use macos
