@@ -1,1 +1,1 @@
-I use macos btw
+I use elementary os btw
