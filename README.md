@@ -1,1 +1,1 @@
-I use ubuntu on macbook pros btw! 
+Macos Ventura User
