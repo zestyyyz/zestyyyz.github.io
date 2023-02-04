@@ -1,1 +1,1 @@
-Ubuntu on mac user
+I use ubuntu on macbook pros btw 
