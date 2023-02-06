@@ -1,1 +1,1 @@
-Macos Ventura and macos catalina user
+Mac OS Ventura and Monterey enjoyer
