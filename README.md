@@ -1,1 +1,1 @@
-Mac OS Ventura and Monterey enjoyer
+Macos and Mint enjoyer
