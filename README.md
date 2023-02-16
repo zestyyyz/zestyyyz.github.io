@@ -1,1 +1,1 @@
-gentoo2015pro
+2015pro
