@@ -1,1 +1,1 @@
-thinkpad
+2010pro
