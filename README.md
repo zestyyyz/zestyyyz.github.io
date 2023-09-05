@@ -1,1 +1,1 @@
-thinkpad
+2015pro
