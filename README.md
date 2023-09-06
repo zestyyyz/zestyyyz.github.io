@@ -1,1 +1,1 @@
-win10
+thinkpad
