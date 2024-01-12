@@ -1,1 +1,1 @@
-ubuntu
+arch
