@@ -1,1 +1,1 @@
-opensuse
+ubuntu
