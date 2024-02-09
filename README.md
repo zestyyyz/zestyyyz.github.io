@@ -1,1 +1,1 @@
-thinkpad
+m1
