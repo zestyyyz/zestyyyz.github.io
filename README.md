@@ -1,1 +1,1 @@
-fedora
+thinkpad
