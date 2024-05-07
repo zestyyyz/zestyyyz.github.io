@@ -1,1 +1,1 @@
-asahi
+thinkpad
