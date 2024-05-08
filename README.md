@@ -1,1 +1,1 @@
-thinkpad
+silverblue
