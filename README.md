@@ -1,1 +1,1 @@
-ideapad
+linux mint
