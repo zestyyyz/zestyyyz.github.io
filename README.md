@@ -1,1 +1,1 @@
-linux mint
+ubuntu
