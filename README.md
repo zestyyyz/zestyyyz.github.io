@@ -1,1 +1,1 @@
-ideapad
+windows
